@@ -1,0 +1,2 @@
+# AITrends
+AI  New Trends
